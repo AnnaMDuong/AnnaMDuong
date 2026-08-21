@@ -1,4 +1,7 @@
-## Hi there 👋
+## ˚₊‧꒰ა Hey there! ໒꒱ ‧₊˚
+
+I'm Anna-Maria, a computer science student based in Canada.
+
 
 <!--
 **AnnaMDuong/AnnaMDuong** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
