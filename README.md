@@ -1,6 +1,6 @@
 ## ˚₊‧꒰ა Hey there! ໒꒱ ‧₊˚
 
-I'm Anna-Maria, a computer science student based in Canada.
+I'm Anna-Maria, a Computer Science student based in Canada.
 
 
 <!--
