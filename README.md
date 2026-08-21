@@ -1,7 +1,6 @@
 ## ˚₊‧꒰ა Hey there! ໒꒱ ‧₊˚
 
-I'm Anna-Maria, a Computer Science student based in Canada.<br/>
-[LinkedIn](https://www.linkedin.com/in/anna-maria-duong-9375a5283/)
+I'm [Anna-Maria](https://www.linkedin.com/in/anna-maria-duong-9375a5283/), a Computer Science student based in Canada.<br/>
 
 
 <!--
