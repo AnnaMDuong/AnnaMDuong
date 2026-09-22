@@ -18,8 +18,7 @@ without any copy/paste templates. <br/><br/>
 I always try to incorporate my *interest* into my projects! .☘︎ ݁˖ <br/>
 &nbsp;&nbsp;&nbsp;&nbsp;⤷ ゛Music, Anime, Vtubers ˎˊ˗ <br/>
 
-
-⋆☕︎˖ <br/>
+Thanks for reading! ~ ⋆☕︎˖ <br/>
 <!--
 **AnnaMDuong/AnnaMDuong** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
