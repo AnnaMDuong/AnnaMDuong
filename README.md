@@ -19,7 +19,7 @@ I always try to incorporate my *interest* into my projects! .☘︎ ݁˖ <br/>
 &nbsp;&nbsp;&nbsp;&nbsp;⤷ ゛Music, Anime, Vtubers ˎˊ˗ <br/>
 
 
-I am 100% a tea person ⋆☕︎˖ <br/>
+⋆☕︎˖ <br/>
 <!--
 **AnnaMDuong/AnnaMDuong** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
